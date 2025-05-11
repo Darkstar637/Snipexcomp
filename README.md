@@ -1,1 +1,1 @@
-https://darkstar637.github.io/Snipex/
+https://darkstar637.github.io/Snipexcomp/
